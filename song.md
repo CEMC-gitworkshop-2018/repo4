@@ -1,6 +1,5 @@
 
 
 
+Then came the sun that dried up all the rain
 
-Down came the rain
-The Itsy Bitsy Spider
